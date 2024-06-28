@@ -1,1 +1,1 @@
-# Punishmentz.github.io
+# Punishmentz.gitHub.io
